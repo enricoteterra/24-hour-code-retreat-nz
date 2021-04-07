@@ -2,7 +2,7 @@
 
 << zoom link will be shared here 30 minutes before official start >>
 
-when: 10th April, 10AM - 3PM NZT
+when: Saturday 10th April, 10AM - 3PM NZT
 
 In New Zealand, we'll pick up and start our morning at 9AM. We Mob/Ensemble program, switching who is driving every so many minutes, usually 5-7 minutes. This keeps everyone alert and works well for up to about 8 people, but better at 4-5. Past that and we break off into more than one mob.. we'll be stopping roughly every hour for a retro and a break. We will continue to code until about 3 pm our time, at which point we will be joined by the first participants from India.
 
