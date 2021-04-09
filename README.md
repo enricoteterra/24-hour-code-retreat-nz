@@ -1,6 +1,6 @@
 # 24-hour-code-retreat-nz
 
-<< zoom link will be shared here 30 minutes before official start >>
+https://us02web.zoom.us/j/9072326282?pwd=bDFJYlg2WkJaNHZpN2w4ZmlCRXBPUT09
 
 when: Saturday 10th April, 9AM - 3PM NZT
 
